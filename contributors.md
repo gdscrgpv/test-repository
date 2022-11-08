@@ -1,1 +1,0 @@
-Yasir Khan
